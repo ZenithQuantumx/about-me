@@ -1,2 +1,2 @@
 ABOUT ME - Zenith Quantumx
-an introduction to Zenith Quantumx duh!
+an introduction to Zenith Quantumx
